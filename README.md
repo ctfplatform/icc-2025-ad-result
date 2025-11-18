@@ -1,1 +1,1 @@
-# icc-tokyo-2025-ad-result
+# The Final Result of ICC Tokyo 2025 A&D
